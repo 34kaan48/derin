@@ -1,0 +1,2 @@
+# derin
+Seni seviyorum
